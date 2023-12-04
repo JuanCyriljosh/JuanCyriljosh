@@ -8,7 +8,7 @@ I am Cyriljosh Roberto A. Juan, a passionate individual with a flair for coding 
 
 - **BS Computer Science**
   - New Era University
-  - 2021-Present
+  - 2022-Present
 
 ## Certification:
 
